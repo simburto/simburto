@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @simburto
-- 👀 I’m interested in aruiauiwhretljdiluawjtlaiwra
-- 🌱 I’m currently learning awiuethailwuh3iaw347tyhailruwfjglawr
-- 💞️ I’m looking to collaborate on asew4urhytsile4hj9swe8hrtuserj
+- 👀 I’m interested in muh cheen lerning
+- 🌱 I’m currently learning muh cheen lerning
+- 💞️ I’m looking to collaborate on nothing >:(
 - 📫 How to reach me 4389utjp9soi8erjtosrfikgtsemjrf
-- 😄 Pronouns: ia4ojwetiaotri/a894tjaroijnaol
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: aweijroa3iuehwiulajsnhdlwajuhnfglatujhtwalntuh4nali4wuhaw4tkaeldsfm,
 
 <!---
