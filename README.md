@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @simburto
-- Electrical Lead @ FRC Team 1325 Inverse Paradox
+- FRC Team 1325 Inverse Paradox Alum
