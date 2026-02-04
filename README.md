@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @simburto
-- FRC Team 1325 Inverse Paradox Alum
+- FRC Team 1325 Inverse Paradox Mentor
